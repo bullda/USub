@@ -1,13 +1,11 @@
 ## OUR SERVICE
 
-We cannot promote channels with certain contents. If your channel contains any of the following materials, please do not proceed:
+Channels with any of the below contents will be subject to removal from our service:
 
 * Graphic or Sadistic Realistic Violence
 * Gambling
 * Racism and Discrimination
 * Alcohol or Drug Use promotion
-
-Channels with any of the above contents will be subject to removal from our service.
 
 ## YOUR CONTENT AND CONDUCT
 
